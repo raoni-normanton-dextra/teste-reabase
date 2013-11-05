@@ -5,4 +5,4 @@ Raoni
 Oie!
 Super!!
 Rei do camarote...
-Gui lindo -----> <3
+Gui blabla
